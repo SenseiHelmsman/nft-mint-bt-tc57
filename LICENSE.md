@@ -1,4 +1,4 @@
-# 
+# automatic bot de negociação NFT executor é o melhor bot de negociação NFT executor com varredura de coleções e calculadora de royalties. Seguro, confiável e otimizado para
 
 
 
